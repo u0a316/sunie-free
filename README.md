@@ -1,2 +1,2 @@
-# sunie-free Http Shortcut
+# Install sunie-free Http Shortcut for FREE
 sunie
